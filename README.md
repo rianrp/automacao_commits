@@ -1,1 +1,1 @@
-There's a species of jellyfish that's immortal, the Turritopsis dohrnii, also known as the "immortal jellyfish," can transform its body into a younger state through a process called transdifferentiation.
+Did you know that there is a type of jellyfish that is immortal, the Turritopsis dohrnii, also known as the "immortal jellyfish," can transform its body into a younger state through a process called transdifferentiation.
