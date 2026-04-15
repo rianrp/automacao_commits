@@ -1,1 +1,1 @@
-The shortest verse in the Bible is John 11:35, a single sentence that reads, "Jesus wept."
+Did you know that there is a species of jellyfish that is immortal because it can transform its body into a younger state through a process called transdifferentiation?
