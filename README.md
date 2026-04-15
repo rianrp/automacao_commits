@@ -1,1 +1,1 @@
-Did you know that there is a type of jellyfish that is immortal, with the Turritopsis dohrnii, also known as the "immortal jellyfish," capable of reversing its aging process through a complex life cycle.
+The shortest verse in the Bible is John 11:35, a single sentence that reads, "Jesus wept."
