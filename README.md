@@ -1,1 +1,1 @@
-The shortest war in history was between Britain and Zanzibar on August 27, 1896, and lasted only 38 minutes, with Zanzibar surrendering after just 12 minutes of fighting.
+Did you know that there is a type of jellyfish that is immortal, the Turritopsis dohrnii, also known as the "immortal jellyfish", can transform its body into a younger state through a process called transdifferentiation.
