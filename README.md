@@ -1,1 +1,1 @@
-The shortest war in history was between Britain and Zanzibar on August 27, 1896, and lasted only 38 minutes.
+Research has shown that the human brain can process visual information faster than it can consciously process language, explaining why we often respond to images before we can articulate our thoughts.
